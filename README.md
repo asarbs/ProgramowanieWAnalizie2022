@@ -1,0 +1,1 @@
+# ProgramowanieWAnalizie2022
